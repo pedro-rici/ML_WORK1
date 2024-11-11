@@ -11,7 +11,11 @@ Após isso foi feito a gravação, o Canva permite gravar página por página do
 Cada vídeo pode ser encontrado abaixo, eles foram armazenados no Google Drive e seus links são abertos a todos.
 
 Capítulo 1: https://drive.google.com/file/d/1yDgknF4Wel8h9-LTkIA-4SJrGUxPk-N2/view?usp=drive_link
+
 Capítulo 2: https://drive.google.com/file/d/18ZjmiMSGrsSmxgCPX4AjPWO_Os6Odl9U/view?usp=drive_link
+
 Capítulo 3: https://drive.google.com/file/d/1ForaaxKLwECmS5Dq8yl3cvRpaItFSKpy/view?usp=drive_link
+
 Capítulo 4: https://drive.google.com/file/d/1AbdDW7UGgva_SEDCKMGEoaAH7_RMPdaO/view?usp=drive_link
+
 Capítulo 5: https://drive.google.com/file/d/18wB1njKo8cdQXFE2XzcG638on2Q0XGZ_/view?usp=drive_link
